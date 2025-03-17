@@ -1,2 +1,7 @@
-# AppleID
-免费美区ID共享AppleID国外ID账号小火箭AppStoreID苹果商店ID
+🕛 **更新时间 ：`2025年03月16日14时`**  
+⭐ **如果喜欢该分享请 ⭐ Star 收藏**  
+🚀 **如果想查看更多资源请 [返回首页](https://github.com/wangzai69/fanqiang)**
+
+#
+
+#### 
