@@ -28,7 +28,7 @@ cewotucd99@gmail.com
 - 兄弟姐妹们我尽力了。  
 <br>
 
-[](https://github.com/wangzai69/AppleID/blob/main/images/00.jpg?raw=true)
+![图片描述](https://github.com/wangzai69/AppleID/blob/main/images/00.jpg?raw=true)
 
 
 <br>
