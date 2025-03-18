@@ -30,7 +30,4 @@ cewotucd99@gmail.com
 ![图片描述](https://github.com/wangzai69/AppleID/blob/main/images/000.jpg?raw=true)
 
 
-<br>
-
-#
-<br><br>
+<br><br><br>
