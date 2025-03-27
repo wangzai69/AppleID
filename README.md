@@ -41,8 +41,8 @@ cewotucd99@gmail.com
 <br>
 
 - 不过另有方法获取免费美区ID
-<mark>网址若无法打开请关闭代理</mark>
-- 去登录已精选的 [🚀 vpn供应商](https://cn.992559.xyz/#/register?code=WYvHUyx6) 
+
+- 去登录已精选的 [🚀 vpn供应商](https://cn.992559.xyz/#/register?code=WYvHUyx6) <mark>网址若无法打开请关闭代理</mark>
 - 在 **` 查看文档 `**→**` iOS、Mac客户端 `**
 - 拉到最底就是实时免费美区ID
 - 兄弟姐妹们我尽力了。 
