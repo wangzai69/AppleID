@@ -46,8 +46,4 @@ cewotucd99@gmail.com
 - 在 **` 查看文档 `**→**` iOS、Mac客户端 `**
 - 拉到最底就是实时免费美区ID
 - 兄弟姐妹们我尽力了。 
-
-![图片描述](https://github.com/wangzai69/AppleID/blob/main/images/000.jpg?raw=true)
-
-
 <br><br><br>
