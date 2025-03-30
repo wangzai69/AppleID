@@ -4,7 +4,7 @@
 <br><br>
 
 ## 前言
-🕛 **更新时间 ：`2025年03月30日14时`**  
+🕛 **更新时间 ：`2025年03月30日20时`**  
 ⭐ **如果喜欢该分享请 ⭐ Star 收藏**  
 
 | 经典分享丨更多文章更新中 | 
@@ -42,7 +42,7 @@ cewotucd99@gmail.com
 
 - 不过另有方法获取免费美区ID
 
-- 去登录已精选的 [🚀 vpn供应商](https://cdn.122677.top/?path=register&code=WYvHUyx6)
+- 去登录已精选的 [🚀 vpn供应商](https://cdn.211788.top/?path=register&code=WYvHUyx6)
 - 在 **` 查看文档 `**→**` iOS、Mac客户端 `**
 - 拉到最底就是实时免费美区ID
 - 兄弟姐妹们我尽力了。 
