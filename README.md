@@ -27,7 +27,7 @@
 
 机场里的小火箭ID有专人维护，相当稳定，而博主提供的ID失效后，尽可能去维护。 [🚀 立即注册获得免费下载 Shadowrocket 权限](https://cn.msyll.top/?path=register&code=WYvHUyx6)
 
-![图片描述](https://github.com/wangzai69/AppleID/edit/main/img/999.png?raw=true)
+![图片描述](https://github.com/wangzai69/AppleID/blob/main/img/999.png?raw=true)
 
 <br>
 
