@@ -23,6 +23,10 @@
 ##  正文
 <br>
 
+有些机场比较友善，为新手提供绿色通道，注册新用户可获得10小时免费下载小火箭的权限，一键下载，可省去2.99美元。
+
+机场里的小火箭ID有专人维护，相当稳定，而博主提供的ID失效后，尽可能去维护。 [🚀 立即注册获得免费下载 Shadowrocket 权限](https://cn.msyll.top/?path=register&code=WYvHUyx6)
+
 #### 🚀 美区ID可下载 Shadowrocket
 ```
 w85pingwd@gmail.com
@@ -37,13 +41,5 @@ tingrogr58@gmail.com
 cewotucd99@gmail.com
 ```
 - 统一密码：Ddping980   
-<mark>因ID频繁被锁被恶意篡改已无法使用</mark>
-<br>
 
-- 不过另有方法获取免费美区ID
-
-- 去登录已精选的 [🚀 vpn供应商](https://cn.msyll.top/?path=register&code=WYvHUyx6)
-- 在 **` 查看文档 `**→**` iOS、Mac客户端 `**
-- 拉到最底就是实时免费美区ID
-- 兄弟姐妹们我尽力了。 
 <br><br><br>
