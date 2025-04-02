@@ -43,7 +43,7 @@
 
 #### 🚀 美区ID可下载 Shadowrocket
 ```
-w85pingwd@gmail.com
+sarl08504@163.com
 ```
 ```
 tiWxrrngrogr58@gmail.com
@@ -51,6 +51,6 @@ tiWxrrngrogr58@gmail.com
 ```
 cewotucd99@gmail.com
 ```
-- 统一密码：Ddping980   
+- 统一密码：Dgj@nkop
 
 <br><br><br>
