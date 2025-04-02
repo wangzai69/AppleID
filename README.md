@@ -46,10 +46,7 @@
 w85pingwd@gmail.com
 ```
 ```
-dturde588@gmail.com
-```
-```
-tingrogr58@gmail.com
+tiWxrrngrogr58@gmail.com
 ```
 ```
 cewotucd99@gmail.com
