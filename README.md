@@ -1,4 +1,4 @@
-# 免费美区ID共享AppleID
+# 免费美区ID共享AppleID【实时更新】
 
 
 <br><br>
